@@ -31,8 +31,8 @@ https://dmitriyraveskiy.noblogs.org/menu-statey/
 А вот здесь есть ссылка на файл со всеми разоблачающими его материалами:     
 https://archive.org/download/dmitriy_raevskiy_alexandrov      
 или     
-https://cloud.disroot.org/s/RdYSGmKmwCAnAWL
-или
+https://cloud.disroot.org/s/RdYSGmKmwCAnAWL   
+или   
 https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/tag/dmitriy_raevskiy_sekta
 
 * Вы можете прямо сейчас прочесть эту книгу онлайн (хоть и не в лучшем качестве):      
