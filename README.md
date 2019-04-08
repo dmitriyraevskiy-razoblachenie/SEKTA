@@ -33,7 +33,9 @@ https://archive.org/download/dmitriy_raevskiy_alexandrov
 или     
 https://cloud.disroot.org/s/RdYSGmKmwCAnAWL
 
-Благодарим за внимание, друзья.
+* Вы можете прямо сейчас прочесть эту книгу онлайн (хоть и не в лучшем качестве):   https://github.com/dmitriyraevskiy-razoblachenie/sekta/blob/master/ДмитрийРаевский-РАЗОБЛАЧЕНИЕЛже-гуру(2).pdf
+
+Благодарим за внимание, дорогие друзья.
 
 ______________
 
