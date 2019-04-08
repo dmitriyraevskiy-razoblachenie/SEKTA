@@ -32,6 +32,8 @@ https://dmitriyraveskiy.noblogs.org/menu-statey/
 https://archive.org/download/dmitriy_raevskiy_alexandrov      
 или     
 https://cloud.disroot.org/s/RdYSGmKmwCAnAWL
+или
+https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/tag/dmitriy_raevskiy_sekta
 
 * Вы можете прямо сейчас прочесть эту книгу онлайн (хоть и не в лучшем качестве):      
 https://github.com/dmitriyraevskiy-razoblachenie/sekta/blob/master/%D0%94%D0%BC%D0%B8%D1%82%D1%80%D0%B8%D0%B9%20%D0%A0%D0%B0%D0%B5%D0%B2%D1%81%D0%BA%D0%B8%D0%B9%20-%20%D0%A0%D0%90%D0%97%D0%9E%D0%91%D0%9B%D0%90%D0%A7%D0%95%D0%9D%D0%98%D0%95%20%D0%9B%D0%B6%D0%B5-%D0%B3%D1%83%D1%80%D1%83%20(2).pdf
