@@ -29,7 +29,7 @@ https://dmitriyraevsky.wordpress.com/2018/09/22/menu_light/
 https://dmitriyraevsky.wordpress.com/     
 https://dmitriyraveskiy.noblogs.org/menu-statey/
 
-Здесь находится одна из историй пострадавших. 
+Здесь находится одна из историй пострадавших.
 Исповедь бывшей ученицы Дмитрия Раевского:
 https://dmitriyraevsky.livejournal.com/
 
