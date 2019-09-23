@@ -34,22 +34,17 @@ https://dmitriyraveskiy.noblogs.org/menu-statey/
 https://dmitriyraevsky.livejournal.com/
 
 А вот здесь есть ссылка на файл со всеми разоблачающими его материалами:     
-https://archive.org/download/dmitriy_raevskiy_alexandrov      
+https://dmitriyraevsky.wordpress.com/2018/11/04/vse_stati_-odnim_-failom_ska4aite/    
 или     
-https://cloud.disroot.org/s/RdYSGmKmwCAnAWL   
+https://cloud.mail.ru/public/3xps/3NYHmBejz  
 или   
-https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/tag/dmitriy_raevskiy_sekta
+https://archive.org/download/dmitryraevsky_razoblachenie (качайте оттуда файлы .docx и .pdf)
 
 Благодарим за внимание, дорогие друзья.
 
 ______________
 
 Вставим здесь теги для поисковиков yandex - google:     
-#raevskyschool  
-#glebalexandrov  
-#dmitriyraevskiy  
-#школараевского  
-#секта  
-#дмитрийраевский  
-#нараяма  
-#лжегуру
+#dmitriyraevskiy #dmitryraevsky #glebalexandrov #procamp #progressor #raevsky #raevskyschool #vk_com_raevskyschool #sect #cult #destructivecult #raevskycult #raevskysect #Shambhala #RaevskyShambhala #Tibet #RaevskyTibet #falseguru #falseteacher #raevskyhealing #whoisdmitryraevsky #raevskybiography #dmitryraevskyreview #dmitryraevskyfeedback #АгниЙога #ГлебАлександров #ГлебАлександровНараяма #ГлебЮрьевичАлександров #ГорныеПоходы #Горы #Гуру #ДмитрийРаевский #Дьявол #Здравница #ЛжеГуру #Лжеучитель #Раевский_лжецмошенник #Махатмы #ДмитрийРаевскийМошенник #Нараяма #ПравдаОраевском #Прогрессор #Раевский #Разоблачение #РазоблачениеРаевского #Рерих #Самозванец #Саморазвитие #Секта #СектаРаевского #Тибет #Учитель #Шамбала #ШколаРаевского #прокемп #эзотерика #отзыв #ДмитрийРаевскийОтзыв #ШколаРаевскогоОтзыв #ЗдравницаОтзыв #дмитрийраевскийбиография #ктотакойдмитрийраевский  #дмитрийраевскийлечение #ДмитрийРаевскийЦелитель #Дмитрийраевскийздравница #сердечнаяпедагогика
+
+#раевский_отзывы #дмитрийраевский_отзывы #дмитрийраевский_реальныеотзывы #дмитрийраевский_настоящийотзыв #школараевского_отзывы #здравницараевского_отзывы #дмитрийраевскийлечение_отзывы
