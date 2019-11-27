@@ -1,4 +1,4 @@
-# [СЕКТА] «Школа Дмитрия Раевского» = Глеб Александров = Нараяма
+# [СЕКТА] «Школа Дмитрия Раевского» = Глеб Александров = Деструктивная СЕКТА
 
 На эзотерическом рынке в последние годы очень активно раскручивается лже-учитель и глава деструктивной секты по имени Дмитрий Раевский (по паспорту Глеб Юрьевич Александров, также известный как “Нараяма”).
 
@@ -22,23 +22,15 @@ https://github.com/dmitriyraevskiy-razoblachenie/sekta/blob/master/%D0%A4%D0%9E%
 
 Итак,
 Ознакомится с общей биографией этого лже-гуру можно здесь:      
-https://raevskyschool0.livejournal.com/12801.html      
-https://dmitriyraevsky.wordpress.com/2018/09/22/menu_light/
+https://anti-raevskyalexandrov.xyz/raevskiy-aleksandrov-narayama/ 
+https://anti-raevskyalexandrov.xyz/menu_light/
 
 Более обстоятельный и глубокий анализ совершенно всей деятельности и лживости Дмитрия Раевского и его секты можно найти здесь:     
-https://dmitriyraevsky.wordpress.com/     
-https://dmitriyraveskiy.noblogs.org/menu-statey/
+https://anti-raevskyalexandrov.xyz/
 
 Здесь находится одна из историй пострадавших.
 Исповедь бывшей ученицы Дмитрия Раевского:
 https://dmitriyraevsky.livejournal.com/
-
-А вот здесь есть ссылка на файл со всеми разоблачающими его материалами:     
-https://dmitriyraevsky.wordpress.com/2018/11/04/vse_stati_-odnim_-failom_ska4aite/    
-или     
-https://cloud.mail.ru/public/3xps/3NYHmBejz  
-или   
-https://archive.org/download/dmitryraevsky_razoblachenie (качайте оттуда файлы .docx и .pdf)
 
 Благодарим за внимание, дорогие друзья.
 
