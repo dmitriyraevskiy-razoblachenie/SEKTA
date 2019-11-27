@@ -22,7 +22,7 @@ https://github.com/dmitriyraevskiy-razoblachenie/sekta/blob/master/%D0%A4%D0%9E%
 
 Итак,
 Ознакомится с общей биографией этого лже-гуру можно здесь:      
-https://anti-raevskyalexandrov.xyz/raevskiy-aleksandrov-narayama/ 
+https://anti-raevskyalexandrov.xyz/raevskiy-aleksandrov-narayama/                   
 https://anti-raevskyalexandrov.xyz/menu_light/
 
 Более обстоятельный и глубокий анализ совершенно всей деятельности и лживости Дмитрия Раевского и его секты можно найти здесь:     
