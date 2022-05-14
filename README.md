@@ -21,16 +21,19 @@ https://anti-raevskyalexandrov.xyz/wp-content/uploads/%D1%80%D0%B0%D0%B5%D0%B2%D
 
 
 Итак,
-Ознакомится с общей биографией этого лже-гуру можно здесь:      
+### Ознакомится с общей биографией этого лже-гуру можно здесь:      
 https://anti-raevskyalexandrov.xyz/raevskiy-aleksandrov-narayama/                   
 https://anti-raevskyalexandrov.xyz/menu_light/
 
-Более обстоятельный и глубокий анализ совершенно всей деятельности и лживости Дмитрия Раевского и его секты можно найти здесь:     
+### Более обстоятельный и глубокий анализ совершенно всей деятельности и лживости Дмитрия Раевского и его секты можно найти здесь:     
 https://anti-raevskyalexandrov.xyz/
 
-Здесь находится одна из историй пострадавших.
+### Здесь находится одна из историй пострадавших.
 Исповедь бывшей ученицы Дмитрия Раевского:
 https://dmitriyraevsky.livejournal.com/
+
+### И, наконец, вся наша КНИГА разоблачения Дмитрия Раевского - 
+https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/download/dmitriy_raevskiy_sekta/dmitriy_raevskiy_RAZOBLACHENIE.pdf
 
 Благодарим за внимание, дорогие друзья.
 
