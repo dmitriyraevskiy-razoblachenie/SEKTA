@@ -19,7 +19,6 @@ https://anti-raevskyalexandrov.xyz/
 
 # У людей должна быть достоверная и наиболее всесторонняя информация об этом зловредном субъекте… а далее, — пусть сами делают свой свободный выбор.
 
-
 Итак,
 ### Ознакомится с общей биографией этого лже-гуру можно здесь:      
 https://anti-raevskyalexandrov.xyz/dmitriy_raevskiy-gleb_alexandrov-biografiya/                 
