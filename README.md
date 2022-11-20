@@ -34,7 +34,7 @@ https://dmitriyraevsky.livejournal.com/
 
 ### И, наконец, вся наша КНИГА разоблачения Дмитрия Раевского - 
 https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/download/dmitriy_raevskiy_sekta/2dmitriy_raevskiy_RAZOBLACHENIE_FINAL_PDF_11-2022.zip
-и
+или качайте вот здесь - 
 https://anti-raevskyalexandrov.xyz/vse_stati_-odnim_-failom_ska4aite/
 
 Благодарим за внимание, дорогие друзья.
