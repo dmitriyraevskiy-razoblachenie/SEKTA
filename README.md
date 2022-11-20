@@ -28,18 +28,17 @@ https://anti-raevskyalexandrov.xyz/menu-statey/
 ### Более обстоятельный и глубокий анализ совершенно всей деятельности и лживости Дмитрия Раевского и его секты можно найти здесь:     
 https://anti-raevskyalexandrov.xyz/main_menu/
 
-### А здесь находится одна из историй пострадавших.
-Исповедь бывшей ученицы Дмитрия Раевского:
+### А здесь находится одна из историй пострадавших. "Исповедь бывшей ученицы Дмитрия Раевского":
 https://anti-raevskyalexandrov.xyz/ispoved_byvshej_uchenicy_raevskogo/
 https://dmitriyraevsky.livejournal.com/
 
 ### И, наконец, вся наша КНИГА разоблачения Дмитрия Раевского - 
 https://github.com/dmitriyraevskiy-razoblachenie/SEKTA/releases/download/dmitriy_raevskiy_sekta/dmitriy_raevskiy_RAZOBLACHENIE.pdf
+
 https://anti-raevskyalexandrov.xyz/vse_stati_-odnim_-failom_ska4aite/
 
 Благодарим за внимание, дорогие друзья.
-
 ______________
 
-Вставим здесь теги для поисковиков yandex - google:     
+
 #dmitriyraevskiy #dmitryraevsky #glebalexandrov #procamp #progressor #raevsky #raevskyschool #vk_com_raevskyschool #sect #cult #destructivecult #raevskycult #raevskysect #Shambhala #RaevskyShambhala #Tibet #RaevskyTibet #falseguru #falseteacher #raevskyhealing #whoisdmitryraevsky #raevskybiography #dmitryraevskyreview #dmitryraevskyfeedback #АгниЙога #ГлебАлександров #ГлебАлександровНараяма #ГлебЮрьевичАлександров #ГорныеПоходы #Горы #Гуру #ДмитрийРаевский #Дьявол #Здравница #ЛжеГуру #Лжеучитель #Раевский_лжецмошенник #Махатмы #ДмитрийРаевскийМошенник #Нараяма #ПравдаОраевском #Прогрессор #Раевский #Разоблачение #РазоблачениеРаевского #Рерих #Самозванец #Саморазвитие #Секта #СектаРаевского #Тибет #Учитель #Шамбала #ШколаРаевского #прокемп #эзотерика #отзыв #ДмитрийРаевскийОтзыв #ШколаРаевскогоОтзыв #ЗдравницаОтзыв #дмитрийраевскийбиография #ктотакойдмитрийраевский  #дмитрийраевскийлечение #ДмитрийРаевскийЦелитель #Дмитрийраевскийздравница #сердечнаяпедагогика #раевский_отзывы #дмитрийраевский_отзывы #дмитрийраевский_реальныеотзывы #дмитрийраевский_настоящийотзыв #школараевского_отзывы #здравницараевского_отзывы #дмитрийраевскийлечение_отзывы
